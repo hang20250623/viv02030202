@@ -7,6 +7,10 @@
 
 点击访问：七四猫福利导航<a href="https://74mao.com/">（74mao.com）</a>
 
+点击访问：<a href="https://74mao.com/">74猫导航主站</a>
+
+点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
+
 点击访问：<a href="https://cg1-43.pages.dev/">网打尽</a>
 
 点击访问：<a href="https://cg2-43.pages.dev/">畅享不停歇</a>
@@ -37,10 +41,6 @@
 
 点击访问：<a href="https://cg1-34.pages.dev/">热门剧集</a>
 
-点击访问：<a href="https://hls-40.pages.dev/">黑料社首页</a>
-
-点击访问：<a href="https://hj-162.pages.dev/">影视官方网页版观看网站</a>
-
 点击访问：<a href="https://91chiguazhongxin.pages.dev/">今日吃瓜</a>
 
 点击访问：<a href="https://chiguaqunzhongde.pages.dev/">吃瓜群众的吃瓜网站 </a>
@@ -62,4 +62,4 @@ Telegram频道传送门：汇聚热门Telegram频道，覆盖资讯、娱乐、�
 社会影响：
 
 黑料大事记详细梳理娱乐圈与网红界的重要爆料事件，时间线清晰、内容真实，助你轻松回顾舆论风暴全过程，是了解内幕的必备利器。
-[Canonical link](https://github.com/hang20250623/viv02030202）
+[Canonical link](）
